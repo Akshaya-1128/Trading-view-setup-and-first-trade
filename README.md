@@ -1,0 +1,1 @@
+# Trading-view-setup-and-first-trade
